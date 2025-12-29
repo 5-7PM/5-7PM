@@ -1,5 +1,6 @@
 ## Desperado
 ![GIF](https://static.wikia.nocookie.net/rhg/images/e/e1/CHUCK.gif/revision/latest?cb=20220321141841)
+![GIF](https://static.wikia.nocookie.net/stickpage/images/f/f3/Yoyo_Stance.gif/revision/latest?cb=20220302203341)
 
 [❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋](https://listography.com/velasco)
 ![Image](https://github.com/user-attachments/assets/f8670c1b-7b13-40e2-aa6c-d8d24b840288)
