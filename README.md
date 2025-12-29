@@ -1,4 +1,6 @@
 ## Desperado
+![GIF](https://static.wikia.nocookie.net/rhg/images/e/e1/CHUCK.gif/revision/latest?cb=20220321141841)
+
 [❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋](https://listography.com/velasco)
 ![Image](https://github.com/user-attachments/assets/f8670c1b-7b13-40e2-aa6c-d8d24b840288)
 ![Image](https://github.com/user-attachments/assets/3e6b0ff2-4748-492d-9a42-5c35499313ed)
