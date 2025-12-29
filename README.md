@@ -1,6 +1,7 @@
 ## Desperado
 ![GIF](https://static.wikia.nocookie.net/rhg/images/e/e1/CHUCK.gif/revision/latest?cb=20220321141841)
 <img src="https://static.wikia.nocookie.net/stickpage/images/f/f3/Yoyo_Stance.gif/revision/latest?cb=20220302203341" height="88" />
+<img src="https://static.wikia.nocookie.net/rhg/images/e/e8/Terkoiz_ad.gif/revision/latest?cb=20220610093324" height="90" />
 
 [❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋ ❋](https://listography.com/velasco)
 
